@@ -132,6 +132,4 @@ The analysis suggests that businesses can reduce churn by:
 ## Jiya Makandar
 
 
-https://www.linkedin.com/company/future-interns/
-
 ---
